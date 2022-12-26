@@ -1,2 +1,1 @@
-sc:yusino
-recode by:wan
+malas kasih readme😁😁😁🗿🗿
